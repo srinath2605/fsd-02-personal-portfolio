@@ -1,1 +1,0 @@
-# fsd-02-personal-portfolio
